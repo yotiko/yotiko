@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yotiko
-- 👀 I’m interested in portrait photograph and 
+- 👀 I’m interested in portrait photography and 
      windows system management 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
